@@ -1,0 +1,7 @@
+
+
+There are two ways to live: you can live as if nothing is a miracle; you can live as if everything is a miracle.
+
+    CIPHER: WNUHQWQJ
+    Key: -21
+
